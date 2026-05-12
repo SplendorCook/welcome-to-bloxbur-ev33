@@ -1,4 +1,4 @@
-#  
+#  welcome to bloxburg vip Scripts is the best welcome to bloxburg Script, featuring auto-collect and no clip. Safe and powerful for all your needs.
 
 
 
